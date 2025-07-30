@@ -7,3 +7,7 @@
 并且，Docsify轻量级，可以不用CDN（假的）
 个人主页：https://space.bilibili.com/1175431161?spm_id_from=333.1007.0.0
 
+### 鬼方佳代子美化包
+https://taojunzi.lanzouq.com/iyd1i30bzcsf
+密码:fr8t
+
